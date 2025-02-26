@@ -4,4 +4,4 @@
 Discord Server Cloner Without Admin
 
 Join Here To Get:
-https://discord.gg/mfv4n4ahKt
+https://discord.gg/Qa5getNzHD
